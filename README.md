@@ -1,11 +1,4 @@
-   _____                       
-  / ____|                      
- | (___  _ __   __ _ ___  ___  
-  \___ \| '_ \ / _` / __|/ _ \ 
-  ____) | |_) | (_| \__ \ (_) |
- |_____/| .__/ \__,_|___/\___/ 
-        | |                    
-        |_|                    
+https://e7.pngegg.com/pngimages/937/289/png-clipart-grayscale-sketch-of-man-with-earrings-anime-hoodie-drawing-male-manga-boy-black-hair-chibi-thumbnail.png      
                                                                
                                                                
  Ne vous comparez jamais à qui que ce soit dans ce monde… Vous vous insulteriez.
